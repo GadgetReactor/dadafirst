@@ -1,0 +1,26 @@
+---
+layout:     post
+title:      "D-Day - 1 : September 15 2015"
+subtitle:   "The countdown begins as we stepped in the hospital"
+date:       2015-09-15 12:00:00
+author:     "Sean Seah"
+header-img: "img/post-bg-01.jpg"
+---
+
+We were at KK Hospital (TPS) the previous night for our weekly appointment. Baby Shane was now at the 37 week term now and Dr Han advised that it would be safe for him to come out now and to remove the cervical cerclage, to allow the cervix to widen naturally. We were scheduled to remove the cerclage on the 15 Sep, and arrived at KK in the morning for the admission procedure. Dr Han did mentioned that once the cerclage was removed, labour tends to follow shortly after, but somehow that news didn't fully register with me, and I was still thinking that I might go home after the operation.
+
+It was a long wait, starting from 9am in the morning, before Jiali was wheeled into the operating theatre at 145pm. It was a short procedure, just enough time for me to grab lunch, before she was wheeled out at 230pm. Operation was a success! And now it's back to resting at the delivery suite. Doctors swung by for a check, and it appeared that dilation has increased, so we were given the option to either wait (indefinitely) or to induce. Listening to the recommendation by our doctor, we opted for the latter.
+
+We still had some time and Jiali managed to have dinner first, opted for the epidural, before bursting the water bag and being hooked onto Oxytocin. Ok, so now we wait. Dilation continued slowly, and the oxytocin dosage keep increasing. There were some scares for both of us, as the baby's heartbeat fluctuated with the increase of oxytocin and we were continously monitoring.
+
+Finally at about 230am, the dilation was at its maximum and all signs pointed to a go. Dr Han was already on site and was coordinating with the medical team. I just stood by mainly to get out of the way and not be a hindrance. The nurses there were providing the breathing and pushing advice and I was just standing by helping with the breath counting and supporting her head. Everything after that went by in a blur, the umbilical cord was snipped (not by me - let the doctor know early if you want), and out popped baby Shane.
+
+16 September 2015 - 0254 am _Hello Baby Shane!_
+
+The nurse whisked him away to weighing machine and measured his height (47cm), weight (2.824kg), head circumference and cleaned him before returning him to mummy for skin to skin. Not exactly the fastest for skin to skin but at least I got to hold Baby Shane first (yay) and reminded him to call Dada **first**.
+
+After the initial moment with him, we finally made our way to the room ward, while baby Shane was brought to the nursery for a bath. There was about 2 hours for us to catch a temporary shut eye. KK is a strong advocate of rooming in, so that's about the longest quiet time you will have before the baby is returned.
+
+We didn't attend any antenatal class, which led to a lot of learning on the job. Important lessons would be - breastfeeding, how to swaddle the baby, and even carrying the baby. But we survived.
+
+Baby Shane slept most of the first day and he was generally a quiet baby. Both Mummy and baby Shane were doing well, and we were scheduled to stay in KK for only one more night before we were discharged - which meant a lot of visitors on the day. We are really thankful for the many gifts and hampers received, as well as all who made the trip down. Regrettably, we turned away some friends as there was quite a lot of relatives on the first day. 

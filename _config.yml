@@ -1,0 +1,17 @@
+# Site settings
+title: Dada First
+header-img: img/home-bg.jpg
+email: mailseanseah@gmail.com
+description: "Singapore Parenting (Daddy) Blog about the growing up joys and challenges of Baby Shane!"
+baseurl: ""
+url: "http://www.dadafirst.com"
+twitter_username: gadgetreactor
+github_username:  gadgetreactor
+facebook_username:  seanseah84
+
+# Build settings
+markdown: kramdown
+highlighter: pygments
+permalink: pretty
+paginate: 5
+exclude: ["less","node_modules","Gruntfile.js","package.json","README.md"]
