@@ -1,15 +1,19 @@
 ---
 layout:     post
-title:      "The 9 months - and so we wait"
+title:      "Taking Care of my Baby Out of Responsiblity"
 subtitle:   "From the time we saw the two ticks, it was already a rollercoaster."
 date:       2015-02-17 09:00:00
 author:     "Sean"
 header-img: "img/post-bg-06.jpg"
 ---
 
-After the loss of Baby C (2nd trimester miscarriage - 5 months) back in August 2014, we broke down, we struggled, we recovered, and we decided to try again. We were blessed, and shortly after, in February, we were staring at the two lines on the pregnancy test kit once again.
+Time flies. Initial thoughts on how this blog would turn out was meant to be positive and how being a daddy would magically fall in place, as well as how I would ooh and ahhs, and gush over my little baby boy. The reality is, I am beginning to view taking care of my baby boy to be a responsibility, rather than love.
 
-> Here we go again
+### Do I Love My Baby Boy?
+
+I guess ... but I wouldn't really miss him either. I said soemthing hurtful to my wife two nights ago. I told her I couldn't understand why my dad would fight custody for me twenty five years ago. Did he love me that much? I guess, looking at how he fawn over his grandson. His son, on the other hand, sees his own son as nothing more than a chore. I told her rather blatantly that if we broke up and filed for divorce, I would not even bother to fight for custodial rights of Shane. Words hurt. And I know it worries her. From her, no matter how much our baby boy fusses or cries, he is still her precious baby boy and she loves him unconditionally. I don't know. I can't feel that. Is it something that comes naturally? Or is it cultivated over time?
+
+The whole newborn phase is getting to me. I start to feel frustrated when he cries incessantly. 
 
 We switched Gynae this time around. We felt our previous Gynae was not careful enough and was quick to dismiss our concerns. After reading up on the internet, we setled on Dr Han How Chuan, who is an Assoc Prof at KK Hospital. Rates at KK Hospital is only cheap if you are a referred case from Polyclinic and do not have a gynae preference. For our case, we were considered as private patients and honestly, the consultation rates are about as high as that in a private clinic. In fact, the queues are longer, esp for our selected doctor, who seems to have a never ending stream of patients. However, KK is the most well-equipped O&G hospital around. For cases with complications, they are often referred to KK as well.
 

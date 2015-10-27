@@ -1,8 +1,9 @@
 ---
 layout:     post
 title:      "Start of the Journey"
+subtitle:   "Taking that step out of the hospital doors. We are now on our own"
 date:       2015-09-17 12:11:30
-author:     "Taking that step out of the hospital doors. We are now on our own"
+author:     "Sean"
 header-img: "img/post-bg-02.jpg"
 ---
 
