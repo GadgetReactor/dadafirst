@@ -33,4 +33,10 @@ We got more skilled in coaxing him to sleep, and recognising his cues better. Bu
 
 #### The Scares
 
-There are moments when you are at your wit's end. Like when he is crying incessantly, or when he is not drinking his milk, or when he is sick. As a parent, your heart aches but there's not much you can do. Time and the human body works together and is a great healer, but the moment itself is always tough. There will also be many various inputs - well meaning ones but at times unsolicitated, and brings meaning to the phrase of _too many cooks spoil the broth_. But, always remember, you are the one with little or no experience while your parents have handled cranky babies with similar genes to your precious one. **They probably know what to do.**
+There are moments when you are at your wit's end. Like when he is crying incessantly, or when he is not drinking his milk, or when he is sick. As a parent, your heart aches but there's not much you can do. Time and the human body works together as a great healer, but the moment itself is always tough. There will also be many various inputs - well meaning ones but at times unsolicitated, and brings meaning to the phrase of _too many cooks spoil the broth_. But, always remember, you are the one with little or no experience while your parents have handled cranky babies with similar genes to your precious one. **They probably know what to do.**
+
+#### The Solo Car Rides
+
+I thought kids love car rides. Shane loves his cars, but he doesn't fancy taking them alone. I dread the times when I have to drive him alone in the car. It's a cacophony of shrieks and wahs, and can be the entire duration of the ride - which is often 20 minutes or more. It's a combination of heart wrenching and also hair pulling emotions, at the same time.
+
+
