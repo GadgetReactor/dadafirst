@@ -7,7 +7,7 @@ author:     "Sean"
 header-img: "img/post-bg-01.jpg"
 ---
 
-![here]. With empty alt text ![](img/post-bg-01.jpg)
+![header](img/post-bg-01.jpg)
 
 We were at KK Hospital (TPS) the previous night for our weekly appointment. Baby Shane was now at the 37 week term now and Dr Han advised that it would be safe for him to come out now and to remove the cervical cerclage, to allow the cervix to widen naturally. We were scheduled to remove the cerclage on the 15 Sep, and arrived at KK in the morning for the admission procedure. Dr Han did mentioned that once the cerclage was removed, labour tends to follow shortly after, but somehow that news didn't fully register with me, and I was still thinking that I might go home after the operation.
 
