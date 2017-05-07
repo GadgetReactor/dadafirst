@@ -11,7 +11,7 @@ Time flies. Initial thoughts on how this blog would turn out was meant to be pos
 
 ### Do I Love My Baby Boy?
 
-I guess ... but I wouldn't really miss him either. I said soemthing hurtful to my wife two nights ago. I told her I couldn't understand why my dad would fight custody for me twenty five years ago. Did he love me that much? I guess, looking at how he fawn over his grandson. His son, on the other hand, sees his own son as nothing more than a chore. I told her rather blatantly that if we broke up and filed for divorce, I would not even bother to fight for custodial rights of Shane. Words hurt. And I know it worries her. From her, no matter how much our baby boy fusses or cries, he is still her precious baby boy and she loves him unconditionally. I don't know. I can't feel that. I start to question the concept of love. Is it something that comes naturally? Or is it cultivated over time?
+I guess ... but I wouldn't really miss him either. I said somthing hurtful to my wife two nights ago. I told her I couldn't understand why my dad would fight custody for me twenty five years ago.e Did he love me that much? I guess, looking at how he fawn over his grandson. His son, on the other hand, sees his own son as nothing more than a chore. I told her rather blatantly that if we broke up and filed for divorce, I would not even bother to fight for custodial rights of Shane. Words hurt. And I know it worries her. From her, no matter how much our baby boy fusses or cries, he is still her precious baby boy and she loves him unconditionally. I don't know. I can't feel that. I start to question the concept of love. Is it something that comes naturally? Or is it cultivated over time?
 
 #### It's been very tiring
 
