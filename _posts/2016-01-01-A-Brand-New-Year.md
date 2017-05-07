@@ -24,5 +24,3 @@ I changed my job at the start of December. The new environment, learning curve, 
 As you might have guessed, both aspects suffered, and me, being at the centre of it, suffered as well. 
 
 ![daddy infographic](//gadgetreactor.github.io/dadafirst/img/parenting_tips.jpg)
-
-<img src="img/parenting_tips.jpg"/>
